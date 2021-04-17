@@ -2,7 +2,7 @@
 Als tapfere Crew sprechen wir der ersten Capatain der DI, Martina Ruck, unseren Dank aus. Wir tun das in dem wir die erste DI Geogaching Tour bauen. Eine Sammulung von Nerdigen Gadgets, coolen Erlebnissen und waghalsigen Zukunfsprognosen. Ihr entscheidet wie das Ergebnis aussieht. Als Rätsel, Als Escape Game, als timecapsule oder ganz anders. Es wird eine Tour die für uns alle dauerhaft nutzbar bleibt. 
 
 ###  Ready to set sail
-Unsere Mission wird fortgesetzt. Wir bereiten uns alle für die Zukunft vor. Wir bleiben in bestem Freundschaft und dauerhaftem Kontakt. Wir bauen Wegweiser, Kontaktpunkte, Momente der Inspiration, Ideen für eine neue Welt und Räume die Spaß machen. Für Martina, Für uns, Für alle. Mit dem Ziel weitere "Funken der Digitalisierung" in unserer Welt zu zünden. Denn viele Menschen suchen aktuell nach Perspektive, Vision, Verbindung, Kontakt und Orientierung. 
+Unsere Mission wird fortgesetzt. Wir bereiten uns alle für die Zukunft vor. Wir bleiben in bester Freundschaft und dauerhaftem Kontakt. Unsere Türen sind immer offen. Wir bauen Wegweiser, Kontaktpunkte, Momente der Inspiration, Ideen für eine neue Welt und Räume die Spaß machen. Für Martina, Für uns, Für alle. Mit dem Ziel weitere "Funken der Digitalisierung" in unserer Welt zu zünden. Denn viele Menschen suchen aktuell nach Perspektive, Vision, Verbindung, Kontakt und Orientierung. 
 Wer, wenn nicht wir, als offene Community mit Innovativen Mindset. Wir haben starke Werte und einem noch stärkeren Drive zum "#Anpacken". 
 
 ### Wir agieren aus einer Position der stärke
