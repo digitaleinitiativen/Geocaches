@@ -5,7 +5,7 @@ Als tapfere Crew sprechen wir der ersten Capatain der DI, Martina Ruck, unseren 
 Unsere Mission wird fortgesetzt. Wir bereiten uns alle für die Zukunft vor. Wir bleiben in bester Freundschaft und dauerhaftem Kontakt. Unsere Türen sind und bleiben immer offen. Für Martina, Für uns, Für alle die mitarbeiten können und wollen. Für immer. Denn gemeinsam zünden wir den Funken der Digitalisierung. Immer wieder neu. Persönlich. Technisch. Anders.
 
 Wir schaffen Wegweiser, Kontaktpunkte, Momente der Inspiration, Ideen für eine neue Welt und Räume die Spaß machen. Mit dem Ziel weitere "Funken der Digitalisierung" in unserer Welt zu zünden. Denn viele Menschen suchen aktuell nach Perspektive, Vision, Verbindung, Kontakt und Orientierung. 
-Wer, wenn nicht wir, als offene Community mit Innovativen Mindset. Wir haben starke Werte und einem noch stärkeren Drive zum "#Anpacken". 
+Wer, wenn nicht wir, als offene Community mit innovativen Mindset setzen genau hier den ersten Schritt. Wir haben starke Werte und einem noch stärkeren Drive zum "#Anpacken". 
 
 ### Wir agieren aus einer Position der stärke
 Vieles ist gut gelaufen. Wir haben viel geschafft. Als Menschen, als Verein, als Dienstleister stehen organisatorisch und finanziell gut da. 
