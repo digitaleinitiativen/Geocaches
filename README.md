@@ -45,12 +45,13 @@ Wir freuen uns auf spannede Rätsel.
  - Und Bier trinken.
 
 
-Christophs Cache:
-N 47° 24.310', E 009° 44.585'
-Hint: Unter was drunter
+### Christophs Cache
 
-15MetersOfFiber:
-N 47° 24.270 E 009° 44.638
-Digging deep into the stairs of Postgarage you will find 15 meters of fiber
-Hint: The wooden stairs might be the path to enlightenment
+- N 47° 24.310', E 009° 44.585'
+- Hint: Unter was drunter
+
+### 15MetersOfFiber:
+- N 47° 24.270 E 009° 44.638
+- Digging deep into the stairs of Postgarage you will find 15 meters of fiber
+- Hint: The wooden stairs might be the path to enlightenment
 
